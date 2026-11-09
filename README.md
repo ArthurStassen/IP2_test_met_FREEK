@@ -1,6 +1,6 @@
 # IP2_test_met_FREEK
 
 
-Freak pols
+Freaky pols
 Break pols
 tudelft nutter
